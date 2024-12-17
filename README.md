@@ -1,5 +1,5 @@
-mostlikely linked if altr (ask)
+mostlikely linked if alter (ask)
 
-or if i just want to use this github for a pony sometimes
+or if i just want to use this github for pony sometimes
 
-bai
+ok bai haah ahha ill add stuff latir :pp
